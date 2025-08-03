@@ -11,3 +11,5 @@
 🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
 -->
 ![goma-peach](https://github.com/user-attachments/assets/36694e33-06c6-4904-8b9e-9635d777a6b2)
+
+https://en.wikipedia.org/wiki/Ghost_(physics)

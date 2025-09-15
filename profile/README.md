@@ -14,4 +14,4 @@
 
 https://en.wikipedia.org/wiki/Ghost_(physics)
 
-![She and a 癩蛤蟆]<img width="680" height="445" alt="image" src="https://github.com/user-attachments/assets/e30a02df-b6de-4f31-91ed-0b1c2aa78c75" />
+![She and Pepe]<img width="680" height="445" alt="image" src="https://github.com/user-attachments/assets/e30a02df-b6de-4f31-91ed-0b1c2aa78c75" />

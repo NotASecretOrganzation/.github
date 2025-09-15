@@ -13,3 +13,5 @@
 ![goma-peach](https://github.com/user-attachments/assets/36694e33-06c6-4904-8b9e-9635d777a6b2)
 
 https://en.wikipedia.org/wiki/Ghost_(physics)
+
+![She and a frog]<img width="680" height="445" alt="image" src="https://github.com/user-attachments/assets/e30a02df-b6de-4f31-91ed-0b1c2aa78c75" />
